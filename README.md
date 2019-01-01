@@ -10,10 +10,10 @@
 #### 链接：https://pan.baidu.com/s/1QJor7MF0utJUM__Xrljq6A  提取码：zzb5
 
 ### Task 3: 自编函数
-####  
+#### 链接：https://pan.baidu.com/s/1MuAa6CvT72A-Xc2DwMtyXw  提取码：6gxh
 
 ### Task 4: 函数跟踪
-####  
+#### 链接：https://pan.baidu.com/s/1XcjNgQLMkMknXa7ytgR0Qw  提取码：peda 
 
 ### Task 5: 统计模型几何解说
 ####  
