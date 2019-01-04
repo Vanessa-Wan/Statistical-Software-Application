@@ -16,7 +16,9 @@
 #### 链接：https://pan.baidu.com/s/1XcjNgQLMkMknXa7ytgR0Qw  提取码：peda 
 
 ### Task 5: 统计模型几何解说
-####  
+#### 链接：https://pan.baidu.com/s/1hgCfs_bD_SEXb-_G_P6bAg  提取码：zmhm （有一点点微调见pdf)
 
 ### Task 6: Netlogo模拟
 #### 链接：https://pan.baidu.com/s/16CRGMgIXAag66TIH0w79OQ  提取码：qt1h
+
+#### 有那么一点可能7号后再见！：）
